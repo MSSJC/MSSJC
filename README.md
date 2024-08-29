@@ -1,5 +1,5 @@
 Meu nome é Miguel Silva dos Santos
-Estudo na E.E PEI JOÃO CILMACO DE CAMARARGO PIRES 
+Estudo na E.E JOÃO Climaco de Camargo Pires 
 
 
 
